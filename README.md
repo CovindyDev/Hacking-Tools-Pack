@@ -320,7 +320,7 @@ Total: `100$`</br>
 
 ## Buy it from here
 
-<h4> Buy With Crypto - https://shop.infutureworld.xyz/item/138/nopyfy-ransomware-open-source-ransomware-with-advanced-features-and-with-service</h2>
+<h4> Buy Now - https://shop.infutureworld.xyz/item/138/nopyfy-ransomware-open-source-ransomware-with-advanced-features-and-with-service</h2>
 
 #### Contact Us - [Contact](https://infutureworld.xyz/a/contact.html)
 
@@ -338,7 +338,7 @@ Trojan Rat Builder(348), Ransomware Builder(17), Crypter(110), Miner(9), Worm(8)
 
 ## Buy it from here
 
-<h4> By Crypto - https://shop.infutureworld.xyz/item/139/gh-hacking-tool-kit-1560</h2>
+<h4> Buy Now - https://shop.infutureworld.xyz/item/139/gh-hacking-tool-kit-1560</h2>
 
 #### Contact Us - [Contact](https://infutureworld.xyz/a/contact.html)
 
