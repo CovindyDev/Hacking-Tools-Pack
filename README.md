@@ -36,7 +36,7 @@ Click here for more contact option - [Contact](https://infutureworld.xyz/a/conta
 ### 🎀 Use Coupon 🎀  - INT12 (12% Off)
 <h2> Buy Now - https://shop.infutureworld.xyz/item/137/hacking-tools-pack</h2>
 
-## By With PayPal or Any other - [Contact](https://infutureworld.xyz/a/contact.html)
+## Contact Us - [Contact](https://infutureworld.xyz/a/contact.html)
 
 
 ## List Of All Tools
